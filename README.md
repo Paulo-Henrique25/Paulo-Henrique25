@@ -64,7 +64,7 @@
 
 ## 📫 Contato
 
-🔗 LinkedIn: https://linkedin.com/in/paulo-henrique-920444245  
+🔗 LinkedIn: https://www.linkedin.com/in/paulohenrique01/
 📧 Email: paulo_henrique7462@hotmail.com  
 
 ---   
